@@ -1,4 +1,4 @@
-## OLA, SEJAM BEM VINDOS AO MEU PARIL
+## OLA, SEJAM BEM VINDOS AO MEU PERFIL
 
 Meu nome é Beatriz da Costa Freitas 
 
